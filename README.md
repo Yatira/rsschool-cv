@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Yatira.github.io/rsschool-cv/cv
